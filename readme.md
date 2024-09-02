@@ -1,9 +1,4 @@
-# LOOOM
-[LOOOM](https://xmexg.github.io/xmexg/)
-## LOOOM
-[LOOOM](https://xmexg.github.io/xmexg/)
-### LOOOM
-[LOOOM](https://xmexg.github.io/xmexg/)  
-你以为我是谁? 我可是**傻逼**啊!
+# 爱发电
+https://afdian.com/a/wkrunning
 
-#  ***牛逼! 又续命了2年*** 
+![afdian-wkyd](https://github.com/user-attachments/assets/76394b13-8917-4302-88d1-0eb125f6d39d)
